@@ -8,7 +8,8 @@ Hi there! 🦃 ⋆⑅˚₊ᡣ𐭩
 
 ⊹₊ ˚‧︵‿₊୨ ᰔ ୧₊‿︵‧ ˚ ₊⊹  ˖˚⊹ ꣑ৎ‎  
 
-I like
+<pre><code>╰┈➤ i like
+</code></pre>
 
 -Pwned by 14:00 
 
@@ -27,9 +28,11 @@ I like
 -More tba!
 
 
-I HATE
+<pre><code>╰┈➤ i HATE
+</code></pre>
 
 -...
 
-
-(๑ᵔ⤙ᵔ๑)(˶˃ ᵕ ˂˶) .ᐟ.ᐟ
+<pre><code>:3
+    (๑ᵔ⤙ᵔ๑)(˶˃ ᵕ ˂˶) .ᐟ.ᐟ
+</code></pre>
