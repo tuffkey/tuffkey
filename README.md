@@ -58,6 +58,11 @@ Hi there! 🦃 ⋆⑅˚₊ᡣ𐭩
 <code style="color : white">" From: roblox game Pwned By 14:00 "</code>
 </h3>
 
+
+
+[↻      ◁     ||     ▷       ↺](idk)
+
+
 ♡₊˚ :turkey:・₊✧
 
  <p align="center">𐙚⋆⊹ ࣪ ˖HeadAmongThousands˖ ࣪ ⊹⋆𐙚  
