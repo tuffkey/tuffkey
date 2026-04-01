@@ -60,8 +60,7 @@ Hi there! 🦃 ⋆⑅˚₊ᡣ𐭩
 
 
 
-[↻      ◁     ||     ▷       ↺](idk)
-
+[▶︎ •၊၊||၊|။|||||၊|၊၊||၊|။____0:00/1:22__𖦤─•──── ](https://static.wikia.nocookie.net/pb14rblx/images/b/b7/Crashtesting.mp3/revision/latest?cb=20260216013126)
 
 ♡₊˚ :turkey:・₊✧
 
