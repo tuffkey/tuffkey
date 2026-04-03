@@ -58,6 +58,16 @@ Hi there! 🦃 ⋆⑅˚₊ᡣ𐭩
 <code style="color : white">" From: roblox game Pwned By 14:00 "</code>
 </h3>
 
+<p align="center">
+<img width="900" height="50" src="https://github.com/user-attachments/assets/dcf64d6e-08b5-4590-bec6-69078aac6dce"
+</p>
+
+<p align="center">
+$\text{\color{#474747} Made by kitbunz on discord! }$
+
+
+
+
 
 
 [▶︎ •၊၊||၊|။|||||၊|၊၊||၊|။____0:00/1:22__𖦤─•──── ](https://static.wikia.nocookie.net/pb14rblx/images/b/b7/Crashtesting.mp3/revision/latest?cb=20260216013126)
